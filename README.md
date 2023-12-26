@@ -1,2 +1,0 @@
-# ICPTechnology
-ICPTechnology
